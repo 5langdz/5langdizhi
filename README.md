@@ -1,10 +1,10 @@
 :bangbang::bangbang:五狼在线 地址发布:bangbang::bangbang:
 ==
-:star: :point_right: 【地址一】 ：https://www.5lang.xyz
+:star: :point_right: 【地址一】 ：http://www.5lang.xyz
 ------
-:star: :point_right: 【地址二】 ：https://5lang.xyz
+:star: :point_right: 【地址二】 ：http://5lang.xyz
 ------
-:star: :point_right: 【海外地址】 ：https://www.5lang.ing
+:star: :point_right: 【海外地址】 ：http://www.5lang.ing
 ------
 :star: :point_right: 【邮箱联系方式】 ：5lang@mail.com
 ------
