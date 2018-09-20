@@ -2,7 +2,7 @@
 
 ⭐️👉【地址一】：https：//www.5lang.xyz
 
-⭐️👉【地址二】：https://5lang.xyz
+⭐️👉【地址二】：http:5lang.xyz
 
 ！️重要提醒！️请立即收藏本页面，避免走丢！
 
