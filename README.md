@@ -6,7 +6,7 @@
 ------
 :star: :point_right: 【海外地址】 ：http://www.5wlang.ing
 ------
-:star: :point_right: 【邮箱联系方式】 ：5lang@mail.com
+:star: :point_right: 【邮箱联系方式】 ：5wlang@mail.com
 ------
 :bangbang:重要提醒:bangbang:请立即收藏本页面，避免走丢！
 ==
