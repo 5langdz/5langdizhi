@@ -2,7 +2,7 @@
 ==
 :star: :point_right: 【地址一】 ：http://www.5wlang.xyz
 ------
-:star: :point_right: 【地址二】 ：http://5wlang.xyz
+:star: :point_right: 【地址二】 ：http://5dl.xyz
 ------
 :star: :point_right: 【海外地址】 ：http://www.5wlang.ing
 ------
